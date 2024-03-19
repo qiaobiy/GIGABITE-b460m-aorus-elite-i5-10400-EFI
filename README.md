@@ -1,0 +1,1 @@
+# GIGABITE-b460m-aorus-elite-i5-10400-EFI
